@@ -8,4 +8,4 @@
 <p align="center"> interacting with me is completely okay :) actually its very recommended so pls do it I NEED friends desperately </p>
 <p align="center"> 𝑩𝒀𝑰: dni if a skin I have or what I do upsets you. no need to waste time and energy when the block/hide button is right there </p>
 <p align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
-<p align="center"> <img width="374" height="281" alt="image" src="https://github.com/user-attachments/assets/8a2ab118-7f6c-4c14-b2c5-14fc289f0b48" </p>
+<p align="center"> <img width="374" height="281" alt="image" src="https://github.com/user-attachments/assets/39036090-f030-4ac7-b2e6-82d4c3c4468a" />
