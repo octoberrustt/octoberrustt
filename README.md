@@ -1,7 +1,7 @@
 # <p align="center"> 𓋹 𝑨𝑩𝑶𝑼𝑻 𝑴𝑬 𓋹 </p>
 <p align="center"> isaiah (saiah, isaiar) | 2OO5 | he/him | istj </p>
 <p align="center"> goth | certified lab geek + pharmacy technician | most unemployed-employed person </p>
-<p align="center"> 𝑳𝑰𝑲𝑬𝑺: Type O Negative, HIM, Carnivore, The Cure, Pantera, Depeche Mode and more.
+<p align="center"> 𝑳𝑰𝑲𝑬𝑺: Type O Negative, HIM, Carnivore, pantera, nailbomb, sepultura and MANY more 
 <p align="center"> 𝑳𝑰𝑲𝑬𝑺: Stranger Things, Dexter, Interview with The Vampire, TWD, and many more gothic films/literature
 <p align="center"> 𝑳𝑰𝑲𝑬𝑺: RE, Silent Hill, DMC, TF2, scorn, mouthwashing, bloodborn, skyrim, elden ring, OW2
 <p align="center"> 𝑰𝑵 𝑷𝑶𝑵𝒀𝑻𝑶𝑾𝑵 </p>
