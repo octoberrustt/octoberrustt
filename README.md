@@ -1,5 +1,5 @@
 # <p align="center"> 𓋹 𝑨𝑩𝑶𝑼𝑻 𝑴𝑬 𓋹 </p>
-<p align="center"> isaiah (saiah, isaiar, the grim sleeper, the slim reaper, nosferajew)  </p>
+<p align="center"> isaiah (saiah, isaiar, the grim sleeper, the slim reaper, nosferajew, GI jew (the great american hebrew), zion man)  </p>
 <p align="center"> originally born in 1944. rejected by israeli terrorists and deported to the united states in 1975, isaiah has been trapped in that time period ever since. although diagnosed 12 times as a paranoid schizophrenic isaiah still insists his doctors are all insane and out to get him. after spontaneously tattooing himself about the torso and arms he now believes it was all a mistake. he can sometimes be seen posing as a homeless person on days off. isaiah has recently built a bomb shelter deep in the heart of the midwest where he patiently awaits the governmental elietes invasion. </p>
 
 
