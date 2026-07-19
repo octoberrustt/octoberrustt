@@ -8,6 +8,5 @@
 <p align="center"> 𝑫𝑰𝑺𝑳𝑰𝑲𝑬𝑺: nothing. im impartial.
 <p align="center"> 𝑰𝑵 𝑷𝑶𝑵𝒀𝑻𝑶𝑾𝑵 </p>
 <p align="center"> interacting with me is completely fine and recommended. however i usually have nothing to say.  </p>
-<p align="center"> 𝑩𝒀𝑰: dont interact with me if you arent old enough to buy cigs and beer.   </p>
 <p align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 <p align="center"> <img width="374" height="281" alt="image" src="https://github.com/user-attachments/assets/39036090-f030-4ac7-b2e6-82d4c3c4468a" />
