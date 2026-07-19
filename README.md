@@ -9,4 +9,5 @@
 <p align="center"> 𝑰𝑵 𝑷𝑶𝑵𝒀𝑻𝑶𝑾𝑵 </p>
 <p align="center"> interacting with me is completely fine and recommended. however i usually have nothing to say.  </p>
 <p align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
-<p align="center"> <img width="374" height="281" alt="image" src="https://github.com/user-attachments/assets/39036090-f030-4ac7-b2e6-82d4c3c4468a" />
+<p align="center"> <img <img width="736" height="1104" alt="fd1e90e0474f293193ca12b163a34ddf" src="https://github.com/user-attachments/assets/174dbc4d-1d48-489b-a229-c633d4bef3e2" />
+ />
