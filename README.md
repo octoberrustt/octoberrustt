@@ -10,4 +10,4 @@
 <p align="center"> interacting with me is completely fine and recommended. however i usually have nothing to say.  </p>
 <p align="center"> ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 <p align="center"> <img <img width="736" height="1104" alt="fd1e90e0474f293193ca12b163a34ddf" src="https://github.com/user-attachments/assets/174dbc4d-1d48-489b-a229-c633d4bef3e2" />
- />
+ 
